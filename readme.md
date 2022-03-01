@@ -1,1 +1,0 @@
-Ricards Spundzans
